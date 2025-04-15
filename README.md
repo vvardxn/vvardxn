@@ -1,3 +1,5 @@
+<p align="center"> <img scr=https://64.media.tumblr.com/33e40974b0be6c7e1152ff61d3439c82/b13761e5842ed7c7-19/s500x750/5ad6895cb6b1c3e3a482eecec83d6c1c6f7a138c.png> <p align="center">
+  
 <p align="center">
 <img src=https://watermelon.crd.co/assets/images/gallery15/8c676890.gif?v=6332de85>     <i>Ba</i>n / Ma<b>ko</b> 、、
 <p align="center">
